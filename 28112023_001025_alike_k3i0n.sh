@@ -1,0 +1,1 @@
+Ivory soap slogan "99-44/100% Pure" was cleverly invented by Harley Proctor who with the help of chemists determined that Ivory soap was only 56/100 pure. Proctor simply subtracted 56 from 100 and came up with "99-44/100% Pure"
