@@ -1,0 +1,1 @@
+Deliberately infecting people with malaria has been used to cure different viral infections. The high fever will strengthen the immune system and fight the virus. In recent times this has been considered as a treatment to HIV
